@@ -18,6 +18,8 @@ O diretório contém as seguintes entregas:
 
 - Link para o Video
 
+  https://youtu.be/Uc4UTj-Bfd0 
+
 
 
 
